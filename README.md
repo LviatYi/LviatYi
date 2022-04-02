@@ -18,8 +18,8 @@ I dreamed it.
 
 ---
 
-“The world comes down to you...Hope lies in you”  
-Mao said that to the youth in 1957, and I believe in it, but the process may be rough.  
-I also dream that living in this world should be more relaxed.  
+“The world comes down to you(The youth)...Hope lies in you”  
+Mao said that to the youth in 1957, and I believe in it, but the struggle may be very hard.  
+Everyone has the right to imagine life and everyone has the obligation to contribute as a human being.  
 
 And I'm a youth.  
