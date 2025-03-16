@@ -13,22 +13,14 @@ Here is Lviat Yi.
 
 ---
 
-## What is Lviat?
+## About Lviat Studio
 
-「Lviat」 maybe a studio,developing games in the future.And I stolen it and make it my last name.  
+> True freedom is being able to do only the right thing.
+>
+> 真正的自由是 —— 可以只做正确的事。
 
-## Future？What about now？
+Lviat Studio aims to explore the truths of INTERACTIVE ART and visualize them using programming languages.
 
-Now Lvait is also a newbee studio in Schrodinger's world,which means Lviat is in the superimposition of existence and non-existence.  
+It is expected that this will promote project development process, human-computer interaction, expression of ideas, understanding between individuals, etc.
 
-## Why is Lviat?
-
-I dreamed it.  
-
----
-
-“The world comes down to you(The youth)...Hope rests on you”  
-Mao said that to the youth in 1957, and I believe in it, but the struggle may be very hard.  
-Everyone has the right to imagine life and everyone has the obligation to contribute as a human being.  
-
-And I'm a youth.  
+LviatYi has tried this practice on many occasions, and looks forward to your opinions!
